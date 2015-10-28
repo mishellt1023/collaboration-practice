@@ -2,9 +2,9 @@
 #### 2
 #### 3  jun
 #### 4
-#### 5 qwertyui
+#### 5 qwertyui 
 #### 6
-#### 7 jun
+#### 7 jun is the best partner
 #### 8
 #### 9 zxcvbnm
 #### 10
