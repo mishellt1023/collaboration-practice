@@ -4,9 +4,9 @@
 #### 4
 #### 5 qwertyui junjun
 #### 6
-#### 7 jun
+#### 7 jun is the best partner
 #### 8
-#### 9 zxcvbnm Github is really good
+#### 9 zxcvbnm Github is really owesome
 #### 10
 #### 11 jun
 #### 12
